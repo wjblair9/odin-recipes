@@ -1,0 +1,1 @@
+The current project is to create an ugly website with links off to recipies and ill get to doing that now (yeet)
